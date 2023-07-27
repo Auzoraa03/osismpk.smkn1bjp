@@ -1,0 +1,1 @@
+# osismpk.smkn1bjp
